@@ -1,3 +1,3 @@
 inspiration from
 
-https://themewagon.github.io/simple/
+https://unesa.ac.id/
